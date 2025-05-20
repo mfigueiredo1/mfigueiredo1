@@ -1,4 +1,4 @@
-👋 Hi there, I’m Michael. originally from the US, now full time dev in San Francisco.
+👋 Hi there, I’m Michael. originally from the US, full time dev in San Francisco.
 
 
 👀 I’m interested in good food, good people and all around adventure
